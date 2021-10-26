@@ -1,4 +1,4 @@
-### Hi there 👋
+### AMOGUS 👋
 
 <!--
 **vavakosalur7/vavakosalur7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
